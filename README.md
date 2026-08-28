@@ -1,2 +1,1 @@
-# Porftfolio
-Neurals as brain 
+**Neurals as brain, hope that u will like it , launching soon..... 
